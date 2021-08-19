@@ -1,0 +1,2 @@
+# resolusi
+hanya resolusi
